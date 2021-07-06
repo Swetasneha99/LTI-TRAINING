@@ -1,1 +1,1 @@
-# Swetasneha Nanda_GET-940_jAVA-II
+# Swetasneha Nanda_GET-940_Java-II
